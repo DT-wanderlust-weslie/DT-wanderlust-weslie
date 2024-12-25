@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Weslie ^^
+- 👋 Hi, I’m onyx ^^
 - 👀 I’m interested in hanging out with the community
 - 😄 Pronouns: They/Them
 - ⚡ Fun fact: I make music
